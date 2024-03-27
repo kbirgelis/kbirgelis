@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on roblox exploits.
 - 📫 How to reach me @kristerskevins on ig.
 - 😄 Pronouns: don't rock with this
-- ⚡ Fun fact: 
+- ⚡ Fun fact: rocks typically don't float.
 
 <!---
 kbirgelis/kbirgelis is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
